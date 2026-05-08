@@ -1,1 +1,0 @@
-# schoolista-MAIN
